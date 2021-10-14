@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @SlaynXQ
+- This account is only for community using.
